@@ -1,0 +1,4 @@
+- [Huawei Strikes Back: China’s Tech Revolution Shakes the World](https://youtu.be/Q9H8FZnkDt4)
+- [US Bans BACKFIRE? Huawei's AI Chip Declares War on Nvidia!](https://youtu.be/2DF3ri1tdPg)
+- [Huawei REPLACES Nvidia amongst China BIG tech?? Just annouced Cloud Matrix 384 already shipping](https://youtu.be/aYbUBOKgsos)
+- [Can Huawei’s CloudMatrix 384 Crush Nvidia’s GB200 NVL72? AI Showdown](https://youtu.be/gjc-5a__uDY)
